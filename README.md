@@ -5,7 +5,7 @@
 
 
 - 🌱 I’m currently learning everything 
-- 🥅 2021 Goals: contribute more to Open Source projects
+- 🥅 2022 Goals: contribute more to Open Source projects
 - :musical_note: Indie Rock & Rock: The Raconteurs - Pink Floyd - The Black Keys - etc
 - ⚡ Fun fact: I love to play chess, draughts and guitar
 
